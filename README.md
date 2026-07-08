@@ -43,7 +43,7 @@ Wkrótce będzie tu "grubo"!
 
 ### 📫 Let's Connect
 - **X / Twitter** — [@l9_andrew](https://x.com/l9_andrew)
-- **LinkedIn** — [www.linkedin.com/in/kacperstepien](www.linkedin.com/in/kacperstepien)
+- **LinkedIn** — [in/kacperstepien](https://www.linkedin.com/in/kacperstepien/)
 
 **Open to collaboration**
 
